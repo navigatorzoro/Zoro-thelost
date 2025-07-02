@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Zoro-thelost
 - 👀 I’m interested in custom roms
-- 🌱 I’m currently learning b.tech
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
